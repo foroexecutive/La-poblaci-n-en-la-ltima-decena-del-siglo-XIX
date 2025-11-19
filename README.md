@@ -1,1 +1,2 @@
-# La-poblaci-n-en-la-ltima-decena-del-siglo-XIX
+# La-poblaci-n-en-la última-decena-del-siglo-XIX
+No se puede establecer un punto intermedio entre 1869 y 1895 en lo referente a la población argentina si no es por indicaciones parciales no siempre dotadas del mínimo de exactitud. Considerando los mismos grupos geográficos a que hemos aludido. Se deduce pues de estas comparaciones, que, si bien la importancia del litoral con respecto al país en lo referente al volumen de población era el 49 % en 1869, ella ha pasado a representar en 1895 el 63,5 % ganando un 14,5 % mientras las demás zonas con excepción de los territorios nacionales han perdido importancia relativa.
